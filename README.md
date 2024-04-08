@@ -7,4 +7,4 @@
 **Направление: Театральная и аудиовизуальная техника** (2019-2021)
 ### Опыт работы
 **Ростовский Государственный Музыкальный Театр** (2021-настоящее время)
-![фото](https://drive.google.com/file/d/1ZmUY2jhssTrLBAc7Asu6nu5LtU2dsqfw/view?usp=drive_link)
+![фотография](drive.google.com/file/d/1ZmUY2jhssTrLBAc7Asu6nu5LtU2dsqfw/view?usp=drive_link)
